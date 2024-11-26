@@ -1,4 +1,4 @@
-# Monopoly Go 50000 Free Dice Generator December 2024 (iOS/Android) Daily Update: Unlock Your Free Dice!
+# Monopoly Go 50000 Free Dice Generator December 2024 (iOS/Android) Daily Update: Unlock Your Free Dice
 
 Before diving into the exciting details of the **Monopoly Go Free Dice Generator**, we have an exclusive offer for you. Starting today, you can get a **massive 50,000 free dice** for your Monopoly Go game. Whether you’re a long-time player or just starting out, these extra dice will give you the boost you need to conquer the board. 
 
